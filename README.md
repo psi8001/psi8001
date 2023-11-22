@@ -1,10 +1,10 @@
 -dormant for a while
 
--anything to tell me? hoseki#8001
+-anything to tell me? zer0press
 
 
 
--maybe.wei#9503 <---- close friend. go send him cat pictures ~
+-9km_5 <---- close friend. go send him cat pictures ~
 
 -fully part time game developer.  peril of philippines...
 
